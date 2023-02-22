@@ -1,3 +1,2 @@
 - Hi, I’m @Tuffdufroggins
-- I’m interested in programming games, minecraft mods, hack clients, plugins, and uhh... minecraft is cool
-- Reach me thru dc: Tuffdufroggins#1170
+- I like programming games, minecraft mods, hack clients, plugins, and whatevs.
